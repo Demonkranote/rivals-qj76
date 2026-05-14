@@ -1,4 +1,4 @@
-
+Download smart Script for rivals for rivals, the best script available, featuring no cooldown and teleport. This powerful tool ensures you have the upper hand in every match,
 
 
 
